@@ -24,3 +24,7 @@ https://www.google.com/amp/s/biggo.com.tw/a/%25E9%259D%2592%25E5%25A4%25A9%25E7%
 
 
 找到關鍵詞之後用搜索引擎就搜到快了
+不是很困难，你可以网上订购：
+http://www.theflagshop.com.au/
+http://www.flagsfantastic.com.au/
+http://myflag.com.au/
