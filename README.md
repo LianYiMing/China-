@@ -7,6 +7,7 @@ https://tw.bid.yahoo.com/
 https://m.ruten.com.tw/
 帆布旗
 https://www.jsflag.com/tw
+http://myflag.com.au/
 ebay青天白日
 https://www.ebay.com/sch/i.html?_nkw=%E6%B0%91%E5%9B%BD%E5%9B%BD%E6%97%97&_trksid=m5467.l1311&_odkw=%E6%B0%91%E5%9B%BD%E5%9B%BD%E6%97%97
 Taiwan Republic of China Polyester Table Desk Flag 
@@ -25,6 +26,4 @@ https://www.google.com/amp/s/biggo.com.tw/a/%25E9%259D%2592%25E5%25A4%25A9%25E7%
 
 找到關鍵詞之後用搜索引擎就搜到快了
 不是很困难，你可以网上订购：
-http://www.theflagshop.com.au/
 http://www.flagsfantastic.com.au/
-http://myflag.com.au/
