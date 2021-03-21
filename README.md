@@ -5,7 +5,8 @@ https://m.pcone.com.tw/
 https://tw.bid.yahoo.com/
 露天拍賣
 https://m.ruten.com.tw/
-帆布旗
+料子不錯的
+https://tw.bid.yahoo.com/item/%E3%80%8A%E5%9C%8B%E6%97%97%E7%89%B9%E5%8D%80%E3%80%8B%E3%80%90%E9%AB%98%E7%B4%9A144x96%E5%85%AC%E5%88%86-%E5%B8%83%E7%AE%A1%E6%97%97-%E5%85%AD%E8%99%9F%E3%80%91%E4%B8%AD%E8%8F%AF%E6%B0%91%E5%9C%8B-100456127239
 https://www.jsflag.com/tw
 http://myflag.com.au/
 ebay青天白日
