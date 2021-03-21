@@ -27,3 +27,5 @@ https://www.google.com/amp/s/biggo.com.tw/a/%25E9%259D%2592%25E5%25A4%25A9%25E7%
 找到關鍵詞之後用搜索引擎就搜到快了
 不是很困难，你可以网上订购：
 http://www.flagsfantastic.com.au/
+飛比
+https://feebee.com.tw/amp/bid/%e9%9d%92%e5%a4%a9%e7%99%bd%e6%97%a5/?page=1&mode=l&inventoryOn=0
